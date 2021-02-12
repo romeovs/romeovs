@@ -7,4 +7,4 @@
 - 🖥️ I build websites and online experiences
 - 🤝 Always open for cooperation, hit me up!
 - ❤️ Biking 🚴‍♂️, fermentation 🥬 and music 🎶
-- 🎛️ I'm currently building a custom WiFi radio for fun
+- 🎛️ I'm building a custom WiFi radio for fun
